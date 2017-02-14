@@ -2,9 +2,8 @@
 
 These are a few of my favorite things:
 
-- Coffee
 - Raindrops on roses
 - Whiskers on kittens
 - Bright copper kettles
 - Warm woolen mittens
-- Big booty bitches
+- Pizza
